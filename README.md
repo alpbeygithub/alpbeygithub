@@ -1,2 +1,2 @@
 Hello world!
-Oryantasyon ödev : https://youtu.be/A9_Gf80EIjc
+Oryantasyon ödev :https://youtu.be/m9H2N4V3rXI
